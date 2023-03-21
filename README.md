@@ -23,29 +23,38 @@ Once you've completed the quiz, review your results and identify the topics wher
 
 In the Pre-Assessment Quiz, you will be asked a series of multiple-choice questions that cover a range of topics in high school physics. The quiz is designed to help you evaluate your current knowledge and identify areas where you may need to focus your study. Once you've completed the quiz, you will be able to review your results and see which topics you need to work on. This will help you get the most out of the rest of the module and be better prepared for future studies in high school physics.
 
+> 📢 **Coming Soon!** We're currently working on providing detailed information for various tutoring subjects. Stay tuned for comprehensive explanations and examples. In the meantime, if you have any specific questions or need assistance, feel free to call, text, or email Tony Tutoring ASAP!
+
 ## Introduction
 
 In this module, we will be learning the basics of high school physics, which is an essential branch of science that deals with the fundamental principles of matter, energy, and their interactions. This module is designed for high school students who are new to physics or need a refresher on the basics.
+> 📢 **Coming Soon!** We're currently working on providing detailed information for various tutoring subjects. Stay tuned for comprehensive explanations and examples. In the meantime, if you have any specific questions or need assistance, feel free to call, text, or email Tony Tutoring ASAP!
 
 ## Topics
+> 📢 **Coming Soon!** We're currently working on providing detailed information for various tutoring subjects. Stay tuned for comprehensive explanations and examples. In the meantime, if you have any specific questions or need assistance, feel free to call, text, or email Tony Tutoring ASAP!
 
 ### 1. Mechanics
 
 In this section, we will learn about mechanics, which is the study of motion, forces, and energy. We will also learn about Newton's laws of motion, work, and energy.
+> 📢 **Coming Soon!** We're currently working on providing detailed information for various tutoring subjects. Stay tuned for comprehensive explanations and examples. In the meantime, if you have any specific questions or need assistance, feel free to call, text, or email Tony Tutoring ASAP!
 
 ### 2. Waves and Sound
 
 In this section, we will explore waves and sound, learning about the properties of waves, wave interference, and the characteristics of sound.
+> 📢 **Coming Soon!** We're currently working on providing detailed information for various tutoring subjects. Stay tuned for comprehensive explanations and examples. In the meantime, if you have any specific questions or need assistance, feel free to call, text, or email Tony Tutoring ASAP!
 
 ### 3. Light and Optics
 
 In this section, we will study light and optics, focusing on the behavior of light, reflection, refraction, and lenses.
+> 📢 **Coming Soon!** We're currently working on providing detailed information for various tutoring subjects. Stay tuned for comprehensive explanations and examples. In the meantime, if you have any specific questions or need assistance, feel free to call, text, or email Tony Tutoring ASAP!
 
 ### 4. Electricity and Magnetism
 
 In this section, we will investigate electricity and magnetism, covering electric charges, electric fields, magnetic fields, and electromagnetic induction.
+> 📢 **Coming Soon!** We're currently working on providing detailed information for various tutoring subjects. Stay tuned for comprehensive explanations and examples. In the meantime, if you have any specific questions or need assistance, feel free to call, text, or email Tony Tutoring ASAP!
 
 ### 5. Thermodynamics
+> 📢 **Coming Soon!** We're currently working on providing detailed information for various tutoring subjects. Stay tuned for comprehensive explanations and examples. In the meantime, if you have any specific questions or need assistance, feel free to call, text, or email Tony Tutoring ASAP!
 
 In this section, we will learn about thermodynamics, which is the study of heat and temperature and their relationship to energy and work.
 
